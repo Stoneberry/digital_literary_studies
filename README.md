@@ -1,1 +1,1 @@
-# digital_literary_studies_2018
+# Дз по минору
